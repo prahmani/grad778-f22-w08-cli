@@ -1,1 +1,1 @@
-I am Parmida Rahmani. Fish is my favorite food.
+Fish is my favorite food.
