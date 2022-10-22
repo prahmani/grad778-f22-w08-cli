@@ -1,1 +1,1 @@
-Fish is my favorite food.
+Favorite food: Rice
